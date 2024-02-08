@@ -14,6 +14,10 @@ https://www.youtube.com/@CboysTV
 https://www.youtube.com/@freedomworx
 - [Don’t Flat Tow in NEUTRAL! #transmission #stickshift #mechanic](https://youtu.be/yCOos-u0oKs)
 
+## Nicole Johnson's Detour
+https://www.youtube.com/@NicoleJohnsonsDetour
+- [DIESEL DUKE: Compound Turbo 12 Valve Cummins 1930 Ford Model A Rat Rod on Dually Mud Terrains | EP31](https://youtu.be/RUAXkRNu8o0)
+
 # Top.Favorite:
 ## Mat Armstrong
 https://www.youtube.com/@MatArmstrongbmx
